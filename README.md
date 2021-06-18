@@ -2,7 +2,7 @@
 - 👀 I’m interested in helping homeowners sell and homebuyers purchase homes!
 - 🌱 I’m a buying and listing agent!
 - 📫 How to reach me at https://www.lindsayjackman.com
-- 
+-  4424 6th Ave, Tacoma, WA 98406
 
 <!---
 TheLindsayJackmanGroup/TheLindsayJackmanGroup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
